@@ -11,15 +11,15 @@
 my main interest are Napoleonic wars although i mostly on British side/british revolution.GNB fans are Welcomed too!! ꒱
 
 ꒰ Arthur self insert btw because he's my favorite historical figure !! ꒱
-  
+
+꒰ arnaud x Alois..? no..? ok.. everyone interact now ,,,, !! i need friends with the same interest,, ꒱
+
 ![](https://64.media.tumblr.com/f7ff25498a14f2a6149887509fb2b04a/537984004494c84c-91/s400x600/2079146e18aa0b0d2f6f241a2ace93709da864bf.jpg) 
 
 ✦ i go by Barry OR Arthur <3
 Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
 ⁺ ⊹ under 16 dni and 21+ dni . weirdos DNII !! Napoleon glazers dni !! . .
 
-##
-![](https://64.media.tumblr.com/757a9e5f2206cad4fc1c1c156d2b475d/537984004494c84c-b7/s400x600/c70e8d436eb11a392da5c33005c1b48b6e07e3b9.jpg)
 ##
 ![](https://64.media.tumblr.com/46ddc2e12d6c9cd4f4bcf1c4069e100f/537984004494c84c-69/s400x600/7fc8403c390b5e8a063a3ed5d7f9a1e364f7e955.jpg)
 ##
