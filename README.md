@@ -13,6 +13,7 @@ my main interest are Napoleonic wars although i mostly on British side/british r
 ꒰ Arthur self insert btw because he's my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
 ꒰ arnaud x Alois..? no..? ok.. everyone interact now ,,,, !! i need friends with the same interest,, ꒱
+(PLEASE DO NOT BE AFRAID, it sound SUPER cold in my main github but im NOT at ALL !! IDK WHY IT SOUNDED RUDE..)
 
 ![](https://64.media.tumblr.com/f7ff25498a14f2a6149887509fb2b04a/537984004494c84c-91/s400x600/2079146e18aa0b0d2f6f241a2ace93709da864bf.jpg) 
 
