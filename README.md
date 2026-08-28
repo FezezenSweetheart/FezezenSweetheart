@@ -21,7 +21,6 @@ my main interest are Napoleonic wars although i mostly on British side/british r
 Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
 ⁺ ⊹ 21+ dni . weirdos DNII !! Napoleon glazers dni !! . .
 
-##
-![](https://64.media.tumblr.com/46ddc2e12d6c9cd4f4bcf1c4069e100f/537984004494c84c-69/s400x600/7fc8403c390b5e8a063a3ed5d7f9a1e364f7e955.jpg)
-##
-![](https://64.media.tumblr.com/c1fdfefc5b6db1e1a4bcec37fc1cf986/537984004494c84c-1d/s400x600/429242e2bf77fbaa35a5d9ac14783f4b73d6aae7.jpg)
+hi alois and arnaud 
+
+![](https://64.media.tumblr.com/6e757d8572c010b9f05fc58a2e739386/4d7f16b5cb9eb6a4-37/s400x600/ce59e5e264441dec6f17adc4d9ced4ba556009ff.gifv)
