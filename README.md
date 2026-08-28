@@ -10,7 +10,7 @@
 ꒰ If you see me lingering around CH area do not hesitate to whisper 2 interact me,i am friendly and i do not bite !!! ^u^
 my main interest are Napoleonic wars although i mostly on British side/british revolution.GNB fans are Welcomed too!! ꒱
 
-꒰ Arthur self insert btw because he's my favorite historical figure !! ꒱
+꒰ Arthur self insert btw because he's my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
 ꒰ arnaud x Alois..? no..? ok.. everyone interact now ,,,, !! i need friends with the same interest,, ꒱
 
