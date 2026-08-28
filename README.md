@@ -1,5 +1,23 @@
+<div align="center">
+<div>
+  
 ![](https://64.media.tumblr.com/3c3f8b1c73a73fe1825a41c60e9e858a/537984004494c84c-65/s1280x1920/e84e06ce84eac7382acec4f5bd0d0203bb8ec79c.pnj)
+
+<h1>$\mathcal{꒰ა WELLINGTON ໒꒱ }$</h1>
+
+꒰ This account is purely for fun !! , i will follow people i found interesting only! yes,i do check profiles.sometimes i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
+
+꒰ If you see me lingering around CH area do not hesitate to whisper 2 interact me,i am friendly and i do not bite !!! ^u^
+my main interest are Napoleonic wars although i mostly on British side/british revolution.GNB fans are Welcomed too!! ꒱
+
+꒰ Arthur self insert btw because he's my favorite historical figure !! ꒱
+  
 ![](https://64.media.tumblr.com/f7ff25498a14f2a6149887509fb2b04a/537984004494c84c-91/s400x600/2079146e18aa0b0d2f6f241a2ace93709da864bf.jpg) 
+
+✦ i go by Barry OR Arthur <3
+Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
+⁺ ⊹ under 16 dni and 21+ dni . weirdos DNII !! Napoleon glazers dni !! . .
+
 ##
 ![](https://64.media.tumblr.com/757a9e5f2206cad4fc1c1c156d2b475d/537984004494c84c-b7/s400x600/c70e8d436eb11a392da5c33005c1b48b6e07e3b9.jpg)
 ##
