@@ -5,7 +5,7 @@
 
 <h1>$\mathcal{꒰ა WELLINGTON ໒꒱ }$</h1>
 
-꒰ This account is purely for fun !! , i will follow people i found interesting only! yes,i do check profiles.sometimes i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
+꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
 ꒰ If you see me lingering around CH area do not hesitate to whisper 2 interact me,i am friendly and i do not bite !!! ^u^
 my main interest are Napoleonic wars although i mostly on British side/british revolution.GNB fans are Welcomed too!! ꒱
