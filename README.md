@@ -18,7 +18,7 @@ my main interest are Napoleonic wars although i mostly on British side/british r
 
 ✦ i go by Barry OR Arthur <3
 Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
-⁺ ⊹ under 16 dni and 21+ dni . weirdos DNII !! Napoleon glazers dni !! . .
+⁺ ⊹ 21+ dni . weirdos DNII !! Napoleon glazers dni !! . .
 
 ##
 ![](https://64.media.tumblr.com/46ddc2e12d6c9cd4f4bcf1c4069e100f/537984004494c84c-69/s400x600/7fc8403c390b5e8a063a3ed5d7f9a1e364f7e955.jpg)
