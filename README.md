@@ -11,7 +11,7 @@
 
 ꒰ Churchparty / Barnaud rarepairs..hi..?...No..? ok. i like Churchparty int please ꒱
 
-꒰ i like fezezen's character ok .. fezezen and Arnaud could be a good pair trust .. ꒱
+꒰ i like fezezen's character ok .. fezezen and Arthur could be a good friends trust .. ꒱
 
 ꒰ Arthur Wellesley / Wellington self insert btw because he's my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
