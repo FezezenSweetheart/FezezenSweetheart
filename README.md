@@ -33,4 +33,6 @@ barnaud safe though..
 ![](https://64.media.tumblr.com/6e757d8572c010b9f05fc58a2e739386/4d7f16b5cb9eb6a4-37/s400x600/ce59e5e264441dec6f17adc4d9ced4ba556009ff.gifv)
 ![](https://64.media.tumblr.com/d488005d7d6476a910816c16a1da46c7/8a88777473957d13-4f/s1280x1920/430075ff2769dd1db7927ebcc2439d0cb811f7b5.pnj)
 ![](https://64.media.tumblr.com/639ae70e7693a76bde8155d65068de55/890a0de41ccd2aa6-9f/s1280x1920/a2062dbd996f2cea62190c938b11074f5ae314c2.pnj)
-![](https://cdn.discordapp.com/attachments/1479784793708433490/1544092614523887706/Untitled3_20260901051220.png?ex=6a973fcf&is=6a95ee4f&hm=82e5772d4f0ec504167d2865ed1ef5e675ff757893c9d001af844272acbfc4ec&)
+
+THESE R COMMISION I BOUGHT FROM SOMONE vv
+![](https://64.media.tumblr.com/6f1133ace7d9ef5aeb0db5464f179114/808a0dff03e9e810-d4/s1280x1920/a8ed51fd307fb3efb7e68fbce14de6d6de89b46c.pnj)
