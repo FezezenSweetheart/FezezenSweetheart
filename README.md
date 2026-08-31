@@ -11,6 +11,8 @@
 Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
 ⁺ ⊹ 21+ dni . weirdos DNII !! Napoleon glazers dni !! . .
 
+![](https://64.media.tumblr.com/477e256fd7fd3f53dd2ca2ac6c8cba66/c55e38c1b5349e1c-1c/s1280x1920/002a159a60dc251f5c012bf4b65bf9d1340ae625.pnj)
+
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
 ꒰ Churchparty / Barnaud rarepairs..hi..?...No..? ok. i like Churchparty int please ꒱
