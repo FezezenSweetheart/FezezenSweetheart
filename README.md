@@ -7,9 +7,7 @@
 
 <h1>$\mathcal{꒰ა WELLINGTON ໒꒱ }$</h1>
 
-✦ i go by Barry OR Arthur <3
-Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
-⁺ ⊹ 21+ dni . weirdos DNII !! Napoleon glazers dni !! .
+✦
 
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
