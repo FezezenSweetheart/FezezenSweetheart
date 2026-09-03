@@ -13,9 +13,7 @@ Malaysia , Half Ukrainian . He / They . 18 yrs old!! ✦
 
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
-꒰ Churchparty / Barnaud rarepairs..hi..?...No..? ok. i like Churchparty int please ꒱
-
-꒰ i like fezezen's character ok .. fezezen and Alois could be a good friends trust (the kissed) .. ꒱
+**꒰ I WILL talk first on first or third day of our talk,but if you straight up ghost me or didnt make effort to talk to me at all so on then i wont hesitate to not continue  the convo any further and unfriend you,sorry.I am pretty talktive and friendly but if you didnt even try to talk to me then sorry not sorry dude. ꒱**
 
 ꒰ Arthur Wellesley / Wellington self insert btw because he's my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
