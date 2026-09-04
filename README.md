@@ -11,7 +11,7 @@
 
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
-**꒰ I WILL talk first on first or third day of our talk,but if you straight up ghost me or didnt make effort to talk to me at all so on then i wont hesitate to not continue  the convo any further and unfriend you,sorry.I am pretty talktive and friendly but if you didnt even try to talk to me then sorry not sorry dude. ꒱**
+**꒰ Arthur Wellesly doubles stay awya ok..? i'm fine with barry doubles though! ꒱**
 
 ꒰ Arthur Wellesley / Wellington self insert btw because he's my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
