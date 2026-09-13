@@ -11,9 +11,9 @@
 
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
-**꒰ Arthur Wellesly doubles stay awya ok..? i'm fine with barry doubles though! ꒱**
+**꒰ Arthur Wellesly cosplayers int OH my god ꒱**
 
-꒰ Arthur Wellesley / Wellington self insert btw because he's my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
+꒰  **Horatio Nelson** self insert btw . ARTHUR Wellelesy is my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
 check main for more info..
 
