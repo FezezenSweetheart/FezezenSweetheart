@@ -5,7 +5,7 @@
 
 ![](https://64.media.tumblr.com/3c3f8b1c73a73fe1825a41c60e9e858a/537984004494c84c-65/s1280x1920/e84e06ce84eac7382acec4f5bd0d0203bb8ec79c.pnj)
 
-<h1>$\mathcal{꒰ა WELLINGTON ໒꒱ }$</h1>
+<h1>$\mathcal{꒰ა WELLINGTON's N1 FAN ໒꒱ }$</h1>
 
 ✦
 
