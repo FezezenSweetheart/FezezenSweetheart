@@ -9,6 +9,8 @@
 
 ✦
 
+꒰ warning !! i am a mentally ill/ Unstable person , i feel like shit at unconditional times, addiction that wont go away! attachment / sh issues at its peak. if youre uncomfortable tell me so ! ꒱
+
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
 **꒰ Arthur Wellesly cosplayers int OH my god ꒱**
