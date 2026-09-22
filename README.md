@@ -17,6 +17,7 @@
 
 ꒰  **Horatio Nelson** self insert btw . ARTHUR Wellelesy is my favorite historical figure !! + Barry William's HEAVY KIN ! ꒱
 
+꒰ Arnaud's / Scared French Soldier's secret side chick /heavy joke. Also both Arnaud and Arthur Wellesely are my comfort character. ꒱
 check main for more info..
 
 ![](https://64.media.tumblr.com/f7ff25498a14f2a6149887509fb2b04a/537984004494c84c-91/s400x600/2079146e18aa0b0d2f6f241a2ace93709da864bf.jpg) 
