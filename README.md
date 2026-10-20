@@ -9,7 +9,7 @@
 
 ✦
 
-꒰ Arnaud's ♡ : Scared French soldier is NOT my f/o but he is my comfort character and my emotional support through everything. ꒱
+꒰ Arnaud's ♡ : Scared French soldier is NOT my f/o and i am NOT a yumeshipper, but he is my comfort character and my emotional support through everything. ꒱
 
 ꒰ This account is purely for fun !! , i will follow people i found interesting , or i do not pay attention at all,depends on my mood.. i will post a doccument about blacklisted stuff and speak my opinions out.No,i do not yumeship with anyone,i already have a lovely partner! ꒱
 
